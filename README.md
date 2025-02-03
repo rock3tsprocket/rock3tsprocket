@@ -2,7 +2,7 @@
 - 👀 I’m interested in jailbreaking random tech stuff.
 - 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me: yuoypu00recovery@gmail.com (email), applepierecovery@gmail.com (secondary email), rockpie_ (discord), Still-Addition-1109 (reddit).
+- 📫 How to reach me: iusemanjaro (discord), Still-Addition-1109 (reddit).
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: i translated a website to arabic.
 

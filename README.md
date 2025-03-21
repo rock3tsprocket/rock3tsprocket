@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @rock3tsprocket
-- 👀 I’m interested in jailbreaking random tech stuff.
-- 🌱 I’m currently learning how to port postmarketOS to a Honor Holly.
-- 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me: iusemanjaro (discord), Still-Addition-1109 (reddit).
+- 👀 I’m interested in doing stuff.
+- 🌱 I’m currently nothinging.
+- 💞️ I’m not looking to collaborate on anything.
+- 📫 How to reach me: rokepi (discord), Still-Addition-1109 (reddit).
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: i translated a website to arabic.
 

@@ -4,7 +4,7 @@
 - 💞️ I’m not looking to collaborate on anything.
 - 📫 How to reach me: rokepi (discord), Still-Addition-1109 (reddit).
 - 😄 Pronouns: he/him.
-- ⚡ Fun fact: i translated a website to arabic.
+- ⚡ Fun fact: yes.
 
 <!---
 rock3tsprocket/rock3tsprocket is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

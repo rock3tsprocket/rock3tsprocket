@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rock3tsprocket
-- 👀 I’m interested in doing stuff.
+- 👀 I’m interested in the C programming language
 - 🌱 I’m currently doing stuff.
 - 💞️ I’m not looking to collaborate on anything.
 - 📫 How to reach me: rokepi (discord), Still-Addition-1109 (reddit), rock-pie@hotmail.com (e-mail).
